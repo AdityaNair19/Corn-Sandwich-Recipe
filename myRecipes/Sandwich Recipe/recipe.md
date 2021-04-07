@@ -1,0 +1,1 @@
+first take a boiled fresh corn a then plug the corn corrnals and then grind it in a mixer then take that paste and paste it over one slice of bread and now put a pinch of garam masala, chat masala and salt. Then,put the other slice of bread over that slice of bread a put it over frying pan and after five minute serve it with sauce. 
